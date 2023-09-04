@@ -1,4 +1,4 @@
-### Hi there 👋
+### Yo, yo, yo! 8-3-4-1-1 to the 6 to the 8 to the 5 to the 6 to the 8. representin' the ABQ. What up, Brotherr? Leave at the tone.
 
 <!--
 **venkatnandi/venkatnandi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
